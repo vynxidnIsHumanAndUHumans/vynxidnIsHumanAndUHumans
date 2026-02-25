@@ -5,7 +5,7 @@
 <h1 align="center"style="font-family: orbitron;">Hi 👋, I'm  vynxidn</h1>
 <h1 align="center">from INDONESIA</h1>
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans/vynxidnIsHumanAndUHumans&style=flat-square" alt="vynxidn" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans&style=flat-square" alt="vynxidn" /> </p>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
