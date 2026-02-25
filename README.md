@@ -6,64 +6,6 @@
 <h1 align="center">from INDONESIA</h1>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans/vynxidnIsHumanAndUHumans&style=flat-square" alt="vynxidn" /> </p>
-<!-- Hidden hits -->
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<!-- Hidden hits -->
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<!-- Hidden hits -->
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<!-- Hidden hits -->
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<!-- Hidden hits -->
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<!-- Hidden hits -->
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<!-- Hidden hits -->
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-v
-
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<!-- Hidden hits -->
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<!-- Hidden hits -->
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<!-- Hidden hits -->
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<!-- Hidden hits -->
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<!-- Hidden hits -->
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<!-- Hidden hits -->
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<!-- Hidden hits -->
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
-<img src="https://komarev.com/ghpvc/?username=vynxidnIsHumanAndUHumans" width="0" height="0">
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
