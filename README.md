@@ -1,3 +1,5 @@
+![vynxidnIsHumanAndUHumans](profilgithub.png)
+
 <h3 align="center" > اِقْرَأْ بِاسْمِ رَبِّكَ الَّذِيْ خَلَقَۚ </h3>
 <h3 align="center"style="font-family: orbitron;">MAHASISWA TEKNIK </h3>
 
